@@ -1,1 +1,2 @@
-this is readme of animachon
+this is ali2 ykik
+
